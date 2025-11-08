@@ -16,7 +16,7 @@ nonsharing yumeshipper (argue with the wall)
 ![](https://files.catbox.moe/08w2hr.gif)
 
 tcc & proshippers dni,  generally fine with anybody else as long as you're nice and not terminally online
-i do not roleplay, sorry!
+<sub> i do not roleplay, sorry!</sub>
 
 
 ![](https://files.catbox.moe/7jf8ml.png)
