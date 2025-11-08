@@ -11,7 +11,7 @@
 nonsharing yumeshipper (argue with the wall)  
 <sub>alucard, wesker, and supervisitor yumes dni plox</sub>
 
-<sub> full f/o list [here]((https://tragerjuice.straw.page/mygoats))</sub>
+<sub> full f/o list [here](https://tragerjuice.straw.page/mygoats) </sub>
 
 ![](https://files.catbox.moe/08w2hr.gif)
 
