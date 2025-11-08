@@ -4,7 +4,7 @@
 ## bio for the pony game lol
 
 
-### I usually accept most frqs (and do not remember any of them) so if you want to actually reach me, ask for my discord or send me yours (i don't bite :])
+### I usually accept most friend rqs (and do not remember any of them) so if you want to actually reach me, ask for my discord or send me yours (i don't bite :])
 
 ![](https://files.catbox.moe/08w2hr.gif)
 
