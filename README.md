@@ -1,4 +1,5 @@
 
+![](https://files.catbox.moe/fqr6ra.gif)
 ![](https://files.catbox.moe/7jf8ml.png)
 
 ## bio for the pony game lol
@@ -13,16 +14,21 @@ nonsharing yumeshipper (argue with the wall)
 
 <sub> full f/o list [here](https://tragerjuice.straw.page/mygoats) </sub>
 
-![](https://files.catbox.moe/08w2hr.gif)
+
 
 tcc & proshippers dni,  generally fine with anybody else as long as you're nice and not terminally online
 <sub> i do not roleplay, sorry!</sub>
 
 
 ![](https://files.catbox.moe/7jf8ml.png)
-![](https://files.catbox.moe/fqr6ra.gif)
+
 
 k bye u can find more info on my strawpage
+
+![](https://files.catbox.moe/rccqo2.gif)    ![](https://files.catbox.moe/99p03n.gif)  ![](https://files.catbox.moe/77z4h1.gif)
+ ![](https://files.catbox.moe/yhcei1.gif)    ![](https://files.catbox.moe/yaaro9.gif)
+
+
 
 
 
