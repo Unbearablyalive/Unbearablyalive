@@ -1,6 +1,7 @@
 
-![](https://files.catbox.moe/fqr6ra.gif)
+
 ![](https://files.catbox.moe/7jf8ml.png)
+![](https://files.catbox.moe/r0jvka.gif)
 
 ## bio for the pony game lol
 
@@ -28,6 +29,7 @@ k bye u can find more info on my strawpage
 ![](https://files.catbox.moe/rccqo2.gif)    ![](https://files.catbox.moe/99p03n.gif)  ![](https://files.catbox.moe/77z4h1.gif)
  ![](https://files.catbox.moe/yhcei1.gif)    ![](https://files.catbox.moe/yaaro9.gif)
 
+![](https://files.catbox.moe/fqr6ra.gif)
 
 
 
