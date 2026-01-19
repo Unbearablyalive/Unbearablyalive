@@ -9,7 +9,7 @@
 
 ![](https://files.catbox.moe/08w2hr.gif)
 
-<sub>alucard, wesker, and supervisitor yumes dni plox</sub>
+
 
 <sub> full f/o list [here](https://tragerjuice.straw.page/mygoats) </sub>
 
