@@ -11,7 +11,7 @@
 
 
 
-<sub> full f/o list [here](https://tragerjuice.straw.page/mygoats) </sub>
+
 
 
 
