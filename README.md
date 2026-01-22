@@ -29,6 +29,7 @@ k bye u can find more info on my strawpage
 
 ![](https://files.catbox.moe/fqr6ra.gif)
 
+[![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=toxicgesture)](https://www.last.fm/user/toxicgesture)
 
 
 
