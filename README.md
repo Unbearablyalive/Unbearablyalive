@@ -19,7 +19,7 @@ tcc & proshippers dni,  generally fine with anybody else as long as you're nice 
 <sub> i do not roleplay, sorry!</sub>
 
 
-![](https://files.catbox.moe/7jf8ml.png)
+![](https://files.catbox.moe/08w2hr.gif)
 
 
 k bye u can find more info on my strawpage
