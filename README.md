@@ -22,10 +22,7 @@ tcc & proshippers dni,  generally fine with anybody else as long as you're nice 
 ![](https://files.catbox.moe/08w2hr.gif)
 
 
-k bye u can find more info on my strawpage
 
-![](https://files.catbox.moe/rccqo2.gif)    ![](https://files.catbox.moe/99p03n.gif)  ![](https://files.catbox.moe/77z4h1.gif)
- ![](https://files.catbox.moe/yhcei1.gif)    ![](https://files.catbox.moe/yaaro9.gif)
 
 ![](https://files.catbox.moe/fqr6ra.gif)
 
