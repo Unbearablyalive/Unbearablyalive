@@ -1,6 +1,6 @@
 
 
-![](https://files.catbox.moe/7jf8ml.png)
+
 ![](https://files.catbox.moe/4ly9zt.gif)
 ## bio for the pony game lol
 
