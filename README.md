@@ -24,8 +24,6 @@ tcc & proshippers dni,  generally fine with anybody else as long as you're nice 
 
 
 
-![](https://files.catbox.moe/fqr6ra.gif)
-
 [![My Last.fm](https://lastfm-recently-played.vercel.app/api?user=toxicgesture)](https://www.last.fm/user/toxicgesture)
 
 
